@@ -1,1 +1,1 @@
-[Ntokozo image]
+![Ntokozo image](https://www.google.com/search?q=ntokozo+mnikathi&safe=active&sxsrf=ALeKk01I2rqLey3np4CZZah3_eNXqkDwUg:1602085031475&source=lnms&tbm=isch&sa=X&ved=2ahUKEwi5vs3p56LsAhURqXEKHYuxCn0Q_AUoAXoECAsQAw&biw=1366&bih=657#imgrc=zg9GPtneUs8CIM)
